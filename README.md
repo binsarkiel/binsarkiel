@@ -1,6 +1,6 @@
 ### Sup, fellas!
 
-My name is Kiel. Just some guy from Jakarta who develops.
+Just some guy from Jakarta who develops.
 
 I enjoy all digital stuffs, especially with video games.
 
